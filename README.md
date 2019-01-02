@@ -1,2 +1,2 @@
-estebanpetaflop.github.io
+
 permalink: bettermotherfuckingwebsite.html
